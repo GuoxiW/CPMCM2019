@@ -6,7 +6,7 @@
 - 袁翔 (shaunyuan@outlook.com)
 
 ## 获奖等级 
-二等奖
+国家级二等奖
 
 ## 摘要
 
